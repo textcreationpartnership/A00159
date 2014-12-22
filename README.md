@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles to be enquired of, within the Prouince of Canterburie, in the Metropoliticall visitation of
+
 #####Body#####
 
 1. Articles to be enquired of, within the Prouince of Canterburie, &c.
